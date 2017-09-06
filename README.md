@@ -69,3 +69,8 @@ Sharp Extreme 에서 함께 게임 서버를 개발할 신입 ~ 2년차 이내 �
 * 양해 부탁드립니다.
 
 
+# 채용담당자 연락처
+
+주세영
+seyoung.chu@sharpextreme.com
+010-6440-19팔팔
